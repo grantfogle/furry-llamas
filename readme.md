@@ -1,0 +1,1 @@
+"All we can do is decide what to do with the time that is given to us." - Gandalf the Grey

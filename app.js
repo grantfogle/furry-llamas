@@ -1,0 +1,1 @@
+<iframe src="https://giphy.com/embed/MeMG8qZuni8XS" width="480" height="192" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/the-lord-of-rings-frodo-gandalf-MeMG8qZuni8XS">via GIPHY</a></p>
